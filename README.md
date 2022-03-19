@@ -22,6 +22,5 @@ Run Meme Page Without The Hussle
 - Month $30
 - Lifetime Contact me 
 ---
-## [AutoGram Showcase Video](https://www.youtube.com/watch?v=w1GX4VTilyc)   
- 
+
 ![alt text](https://cdn.discordapp.com/attachments/899424300120027216/954722261632446494/AUTOOO.png)  
